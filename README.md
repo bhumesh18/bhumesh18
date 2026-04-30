@@ -31,4 +31,4 @@ Below are my top 3 analytics/product/data projects.
 ## 📫 Connect with Me
 
 - LinkedIn: https://www.linkedin.com/in/bhumesh-lalwani-855a871b1/ 
-- Email: bl.official2021@gmail.com
+- Email: bhumeshlalwani04@gmail.com
